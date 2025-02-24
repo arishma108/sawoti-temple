@@ -1,6 +1,13 @@
 # Shri Raam Chatoorjoogi Mundir
 
-###### Shiv Playlist
+###### Maha Shivrathri Playlist
 
+###### Ramayan Playlist
+
+###### Navrathri Playlist
+
+###### Maruti Playlist
+
+###### Krsna Ashtami Playlist
 
 
